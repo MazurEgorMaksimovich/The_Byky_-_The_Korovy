@@ -1,1 +1,1 @@
-# The_Byky_-_The_Korovy
+# The_Byky_and_The_Korovy
